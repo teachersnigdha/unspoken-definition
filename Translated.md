@@ -1,3 +1,8 @@
+![](assets/img/man-on-boat-holding-white-mesh-fishing-net-2131904.jpg)
+
+> Styles: [English](README.md), [Odia](Odia.md), [Translated](Translated.md).<br>
+> [Click here to listen](https://soundcloud.com/teachersnigdha/all-are-our-own).
+
 ```
 As Nirupama, no analogy,
 Filled with many qualities,
@@ -78,4 +83,5 @@ She is my eternal greeting. ... (15)
 > I am writing this poem in the context of the information of<br>
 > my eldest son and youngest son. Last year, I blessed the two gems.
 
-- Snigdha Rani Sahu
+- Poem by Snigdharani Sahoo
+- Photo by Quang Nguyen Vinh from Pexels

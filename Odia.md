@@ -1,3 +1,8 @@
+![](assets/img/man-on-boat-holding-white-mesh-fishing-net-2131904.jpg)
+
+> Styles: [English](README.md), [Odia](Odia.md), [Translated](Translated.md).<br>
+> [Click here to listen](https://soundcloud.com/teachersnigdha/all-are-our-own).
+
 #### ରୂପେ ନିରୁପମା, ନାହିଁ ତା ଉପମା,
 #### ଅନେକ ଗୁଣରେ ଭରା,
 #### କଳା ଧଳା ରଙ୍ଗେ, ବହୁତ ଆକ।ରେ,
@@ -106,4 +111,5 @@
 > ମାେ ବଡ଼ ପୁଅ ଓ ସାନ ପୁଅ ଙ୍କ ସୂଚନା ର ସlରଂଶରେ ମୁଁ ଏହି କବିତାକୁ<br>
 > ଗତ ବର୍ଷ ରୂପ ଦେଇଛି , ସେଥିପାଇଁ ମୁଁ ଦୁଇ ରତ୍ନଙ୍କୁ ଆଶୀର୍ବାଦ କରୁଚି।
 
-- ସ୍ନିଗ୍ଧା ରାଣୀ ସାହୁ
+- Poem by ସ୍ନିଗ୍ଧା ରାଣୀ ସାହୁ
+- Photo by Quang Nguyen Vinh from Pexels
